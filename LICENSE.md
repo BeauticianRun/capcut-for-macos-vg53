@@ -1,4 +1,4 @@
-# 
+# Get the ultimate CapCut for macOS addon with elite CapCut for macOS Addon | auto-color-grading + motion-tracking. Featuring auto-color-grading and motion-tracking, it's the best
 
 
 
